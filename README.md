@@ -5,11 +5,9 @@
 
 ### 獅子星門工作坊 - 喚醒內在神聖，平衡內在和外在世界 with Derek Lam
 
-8月8日 (星期六)
-
-2pm - 6pm (約六小時)
-
-報名連結：https://bit.ly/2P0bbbN
+- 8月8日 (星期六)
+- 2pm - 6pm (約六小時)
+- 報名連結：https://bit.ly/2P0bbbN
 
 
 
