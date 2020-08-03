@@ -1,7 +1,15 @@
-# HK Spiritual Event
+# HK Spiritual Event （持續更新）
 
 
 ## 2020年8月份
+
+[獅子星門工作坊 - 喚醒內在神聖，平衡內在和外在世界 with Derek Lam]
+報名連結：https://bit.ly/2P0bbbN
+日期：2020年8月8日 (星期六)
+時間：2pm - 6pm (約六小時)
+
+
+
 
 ## 2020年9月份
 
